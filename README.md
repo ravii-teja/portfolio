@@ -1,1 +1,1 @@
-#  Bankupali Ravi Teja | 
+# Bankupali Ravi Teja
